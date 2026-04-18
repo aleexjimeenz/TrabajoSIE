@@ -1,2 +1,0 @@
-# TrabajoSIE
-Obrador-Pepi
